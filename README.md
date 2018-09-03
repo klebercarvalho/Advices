@@ -12,7 +12,7 @@ Advices, Clues, Hints
   * __Time.__ When the custome can solve the issue.
   * [Como qualificar o cliente para não perder tempo com quem não vai comprar](https://www.youtube.com/watch?v=50xNQATcggI)
  
-* __You choose your customer, not your customers choosing you.__ Select your customer, and organize the company to have this type of customer. The customer needs to identify with your company.
+* __You choose your customer, not your customers choosing you.__ Select your customer, and organize the company according to the customer you want. the customer needs to identify with your company.
   * [Você escolhe os clientes. Não são os clientes que escolhem você](https://www.youtube.com/watch?v=kB3diUYdV0s)
 
 
