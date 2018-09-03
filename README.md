@@ -3,7 +3,7 @@ Advices, Clues, Hints
 
 ###### Sales
 
-* __You must qualify your client before talking to him.__ Ask what he needs before he starts talking, and understand how you can help him.
+* __You must qualify your client before talking to him.__ Ask what he needs before you start talking, and understand how you can help him.
 
 * __Understand you customer issue, before to speak about yourself.__
   * __What is the customer issue?__ Speak with the customer and really understand what is the issue, before you talk about your product.
