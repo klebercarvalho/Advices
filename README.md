@@ -5,7 +5,7 @@ Advices, Clues, Hints
 
 * __You must qualify your client before talking to him.__ Ask what he needs before he starts talking, and understand how you can help him.
 
-* Understand you customer issue, before to speak about yourself
+* __Understand you customer issue, before to speak about yourself.__
   * __What is the customer issue?__ Speak with the customer and really understand what is the issue, before you talk about your product.
   * __Are you speaking with the right people?__ You need to speak with a decision maker. You need to ask: "Are you the right guy".
   * __Your customer has money to buy your product.__ You need to speak the price.
