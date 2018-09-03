@@ -10,10 +10,10 @@ Advices, Clues, Hints
   * __Are you speaking with the right people?__ You need to speak with a decision maker. You need to ask: "Are you the right guy".
   * __Your customer has money to buy your product.__ You need to speak the price.
   * __Time.__ When the custome can solve the issue.
-  * https://www.youtube.com/watch?v=50xNQATcggI
+  * [Como qualificar o cliente para não perder tempo com quem não vai comprar](https://www.youtube.com/watch?v=50xNQATcggI)
  
 * __You choose your customer, not your customers choosing you.__ Select your customer, and organize the company to have this type of customer. The customer needs to identify with your company.
-  * https://www.youtube.com/watch?v=kB3diUYdV0s
+  * [Você escolhe os clientes. Não são os clientes que escolhem você](https://www.youtube.com/watch?v=kB3diUYdV0s)
 
 
 ###### Productivity
