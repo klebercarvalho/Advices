@@ -18,3 +18,6 @@ Advices, Clues, Hints
 
 ###### Productivity
 * __When you get discouraged, you need try to create something.__ You can create a product, create a training, create / prepare your food,  create a way to do something differently. For example, change/tidy up your desk, or change/tidy up your room etc.
+
+###### Life
+* __people only do with us, what we allow them to do.__ 
