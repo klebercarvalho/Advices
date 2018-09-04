@@ -9,7 +9,7 @@ Advices, Clues, Hints
   * __What is the customer issue?__ Speak with the customer and really understand what is the issue, before you talk about your product.
   * __Are you speaking with the right people?__ You need to speak with a decision maker. You need to ask: "Are you the right guy".
   * __Your customer has money to buy your product.__ You need to speak the price.
-  * __Time.__ When the custome can solve the issue.
+  * __Time.__ When the custome want solve the issue.
   * [Como qualificar o cliente para não perder tempo com quem não vai comprar](https://www.youtube.com/watch?v=50xNQATcggI)
  
 * __You choose your customer, not your customers choosing you.__ Select your customer, and organize the company according to the customer you want. the customer needs to identify with your company.
