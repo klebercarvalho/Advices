@@ -21,3 +21,14 @@ Advices, Clues, Hints
 
 ###### Life
 * __People only do with us, what we allow them to do.__ 
+* __Start small, think big.__ Don't worry about too many things at once. Take a handful of simple things to begin with, and then progress to more complex ones. Think about not just tomorrow, but the future. "I want to put a ding in the universe,” revealed Steve Jobs his dream
+
+###### Entrepreneurship
+
+* __Innovate__ Innovation distinguishes a leader from a follower. Delegate, let other top executives do 50% of your routine work to be able to spend 50% your time on the new stuff. Say no to 1,000 things to make sure you don't get on the wrong track or try to do too much. Concentrate on really important creations and radical innovation. Hire people who want to make the best things in the world. You need a very product-oriented culture, even in a technology company. Lots of companies have tons of great engineers and smart people. But ultimately, there needs to be some gravitational force that pulls it all together.
+
+* __Ask for feedback__ Ask for feedback from people with diverse backgrounds. Each one will tell you one useful thing. If you're at the top of the chain, sometimes people won't give you honest feedback because they're afraid. In this case, disguise yourself, or get feedback from other sources. Focus on those who will use your product – listen to your customers first.
+
+* __Focus on the outcome__ People judge you by your performance, so focus on the outcome. Be a yardstick of quality. Some people aren't used to an environment where excellence is expected. Advertise. If they don't know it, they won't buy your product. Pay attention to design. "We made the buttons on the screen look so good you'll want to lick them." "Design is not just what it looks like and feels like. Design is how it works."
+
+* __Focus on the outcome__ People judge you by your performance, so focus on the outcome. Be a yardstick of quality. Some people aren't used to an environment where excellence is expected. Advertise. If they don't know it, they won't buy your product. Pay attention to design. "We made the buttons on the screen look so good you'll want to lick them." "Design is not just what it looks like and feels like. Design is how it works."
