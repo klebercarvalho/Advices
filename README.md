@@ -31,4 +31,10 @@ Advices, Clues, Hints
 
 * __Focus on the outcome__ People judge you by your performance, so focus on the outcome. Be a yardstick of quality. Some people aren't used to an environment where excellence is expected. Advertise. If they don't know it, they won't buy your product. Pay attention to design. "We made the buttons on the screen look so good you'll want to lick them." "Design is not just what it looks like and feels like. Design is how it works."
 
-* __Focus on the outcome__ People judge you by your performance, so focus on the outcome. Be a yardstick of quality. Some people aren't used to an environment where excellence is expected. Advertise. If they don't know it, they won't buy your product. Pay attention to design. "We made the buttons on the screen look so good you'll want to lick them." "Design is not just what it looks like and feels like. Design is how it works."
+* __Do your best__ Do your best at every job. No sleep! Success generates more success. So be hungry for it. Hire good people with passion for excellence.
+
+* __Make SWOT analysis__ As soon as you join/start a company, make a list of strengths and weaknesses of yourself and your company on a piece of paper. Don't hesitate in throwing bad apples out of the company.
+
+* __Be entrepreneurial__ As soon as you join/start a company, make a list of strengths and weaknesses of yourself and your company on a piece of paper. Don't hesitate in throwing bad apples out of the company.
+
+* __Strive to become a market leader__ Own and control the primary technology in everything you do. If there's a better technology available, use it no matter if anyone else is not using it. Be the first, and make it an industry standard.
