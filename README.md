@@ -39,5 +39,9 @@ Advices, Clues, Hints
 
 * __Strive to become a market leader__ Own and control the primary technology in everything you do. If there's a better technology available, use it no matter if anyone else is not using it. Be the first, and make it an industry standard.
 
-###### time management quotation
+###### Time Management Auotation
 * “The most efficient way to live reasonably is every morning to make a plan of one’s day and every night to examine the results obtained."
+* “The common man is not concerned about the passage of time, the man of talent is driven by it.”
+* “The bad news is time flies. The good news is you’re the pilot”
+* “Time = life; therefore, waste your time and waste of your life, or master your time and master your life.”
+
