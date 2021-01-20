@@ -38,3 +38,6 @@ Advices, Clues, Hints
 * __Be entrepreneurial__ As soon as you join/start a company, make a list of strengths and weaknesses of yourself and your company on a piece of paper. Don't hesitate in throwing bad apples out of the company.
 
 * __Strive to become a market leader__ Own and control the primary technology in everything you do. If there's a better technology available, use it no matter if anyone else is not using it. Be the first, and make it an industry standard.
+
+###### time management quotation
+* “The most efficient way to live reasonably is every morning to make a plan of one’s day and every night to examine the results obtained."
