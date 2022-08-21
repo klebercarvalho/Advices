@@ -1,0 +1,3 @@
+###### Life
+* __Quando você envelhecer__, todo o diploma que você tem, todo o dinheiro que você ganhou, nada disso vai fazer sentido quando você olhar para trás. Você vai lembrar das férias com a sua família, vai lembrar do Natal com sua família, vai lembrar da viagem com sua família, vai lembrar da festa com sua família suas memórias serão apenas os momentos bons que passou com sua família. O que você constrói são memórias, e para memórias você  precisa de pessoas, então seu objetivo é criar lembranças na sua família, porque é isso que realmente importa.
+* __Seja especialista em pessoas__: famílias, empresas, negócios, clientes, parceiros são feitos por pessoas.
