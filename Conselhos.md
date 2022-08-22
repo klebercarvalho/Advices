@@ -3,3 +3,8 @@
 * __Seja especialista em pessoas__: famílias, empresas, negócios, clientes, parceiros são feitos por pessoas.
 * __Sobre o passado é preciso reeditar ele e fazer melhor aquilo que não deu certo para você.__: O passado por deixar feriada e cicatriz. Cicatriz é sinal de que você venceu, ferida está aberta e apodrece com o tempo. O passado precisa deixar cicatriz e não ferida. Se deixar ferida você adoece e morre.
 * __O empreendedor é a alma, o empresario é o que administra e oficializa a empresa.__: Precisa entender os medos do passado para não atrapalhar as decisões atuais, a pessoa que sabe decidir de forma rápido e certo ele sai na frente das pessoas.
+* __Deus perdoa você, mas você precisa aprender a perdoar.__
+Deus pensa em você, mas você precisa aprender a pensar.
+Deus te deu sáude, mas você precisa cuidar dela.
+Deus te deu inteligencia, mas você precisa usar ela.
+Deus te deu oportunidade, mas você precisa usar ela.
