@@ -45,3 +45,22 @@ você precisa ter clientes encantados e impactados com o seu serviço.
 * __Sucesso deixa pista,__
 sucesso não acontece por acaso.
 
+* __Tem poder quem age,__
+Mais poder ainda que age certo.
+Super poderes que age, age certo e na constância e velocidade certa.
+
+* __O que você não tem é pelo que você não sabe.__
+Porque se você soubesse você já teria.
+Não pergunte se você vai conseguir, pergunte se você vai aprender o que precisa ser aprendido para você conseguir. Esse é a pergunta diaria que você precisa fazer para você.
+
+* __Eu aprendi a selecionar, pessoas, lugares, informações.__
+É preciso selecionar essa informações que chegam, para evitar caminhos errados.
+A base do sucesso humano, é selecionar isso para evitar despedicio de energia.
+
+* __Você colhe o que faz, .__
+e o que não faz.
+
+* __Se você ficar nas redes sociais o dia inteiro, .__
+você faz colher isso.
+Se você ficar nas youtube o dia inteiro, você faz colher isso.
+
