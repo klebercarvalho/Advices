@@ -60,7 +60,16 @@ A base do sucesso humano, é selecionar isso para evitar despedicio de energia.
 * __Você colhe o que faz, .__
 e o que não faz.
 
-* __Se você ficar nas redes sociais o dia inteiro, .__
+* __Se você ficar nas redes sociais o dia inteiro,__
 você faz colher isso.
 Se você ficar nas youtube o dia inteiro, você faz colher isso.
+
+* __Se você não tem a vida que quer, é porque você tolera isso.__
+O dia que você não tolerar, você vai mudar isso.
+
+* __Não existe falta de tempo,__
+O que existe é falta de interesse.
+Pois quando a gente realmente quer algo, a madrugada vira dia.
+O sábado vira quarta feira.
+E o momento vira oportuniade para sempre.
 
