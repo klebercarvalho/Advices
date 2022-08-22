@@ -29,3 +29,13 @@ Viva pelo seu proposito e não pela opinião dos outros.
 Faça as coisas por algo maior, faça para servir as pessoas de verdade.
 Dinheiro é uma consequencia de servir as pessoas.
 Quando se faz por algo maior, não desistir é mais fácil, e viver pelo proposito é mais fácil.
+
+* __Ninguém encontra seu proposito, é seu proposito que encontra você.__
+Você encontra seu proposito quando descobre sua identidade.
+
+* __As pessoas não tem um proposito, mas elas tem vários propositos.__
+O princial proposito é crescer e contribuir, você precisa descobrir com o que.
+
+* __Ser bom não é suficiente,__
+você precisa ser extraordinário e gerar transformação na vida das pessoas.
+
