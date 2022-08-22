@@ -73,3 +73,12 @@ Pois quando a gente realmente quer algo, a madrugada vira dia.
 O sábado vira quarta feira.
 E o momento vira oportuniade para sempre.
 
+* __Antigamente pobre tinha coisa de pobre,__
+e rico que tinha coisa de rico.
+Hoje pobre tem coisa de rico, mas vai ser pobre a vida inteira porque precisar sustentar o "vicio" de coisa que ele não tem dinheiro para pagar.
+
+* __O pobre não pensa no logo prazo,__
+ele quer resultado imediato.
+O rico pensa no logo prazo, e quer resultado do longo prazo.
+
+
