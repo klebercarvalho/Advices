@@ -81,4 +81,17 @@ Hoje pobre tem coisa de rico, mas vai ser pobre a vida inteira porque precisar s
 ele quer resultado imediato.
 O rico pensa no logo prazo, e quer resultado do longo prazo.
 
+* __Sempre__
+é possível fazer o melhor.
+
+* __Existem 2 tipos de pessoas:__
+Confortáveis - Não escolheu, mas Não vai ter que conviver. Não vale a pena lidar
+Inconfortáveis - Não escolheu, mas vai ter que conviver. Vai ter que lidar
+
+* __Para ser especialista em pessoas você precisa:__
+1) Ser humilde
+2) Ser especialista em perdoar
+
+
+
 
