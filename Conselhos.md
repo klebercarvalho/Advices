@@ -12,3 +12,15 @@ Deus pensa em você, mas você precisa aprender a pensar.
 Deus te deu sáude, mas você precisa cuidar dela.
 Deus te deu inteligencia, mas você precisa usar ela.
 Deus te deu oportunidade, mas você precisa usar ela.
+
+* __As pessoas não estão interessadas em saber o que você aprendeu.__
+As pessoas estão interessadas em saber o que você venceu.
+Pessoas conectam com sua superação e não com as suas vitorias.
+
+* __Qual é o seu proposito?.__
+1) O que você sabe fazer naturalmente e faria de graça?
+2) O que Deus pediu para fazer? Deus dá vários sinais.
+3) O que as pessoas esperando de você? o que as pessoas querem escutar de você?
+4) O que o mundo precisa? 
+O proposito é a resposta para as 4 perguntas acima.
+Viva pelo seu proposito e não pela opinião dos outros.
