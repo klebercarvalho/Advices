@@ -24,3 +24,8 @@ Pessoas conectam com sua superação e não com as suas vitorias.
 4) O que o mundo precisa? 
 O proposito é a resposta para as 4 perguntas acima.
 Viva pelo seu proposito e não pela opinião dos outros.
+
+* __Nunca desista. Seja obestinado pelo seu proposito.__
+Faça as coisas por algo maior, faça para servir as pessoas de verdade.
+Dinheiro é uma consequencia de servir as pessoas.
+Quando se faz por algo maior, não desistir é mais fácil, e viver pelo proposito é mais fácil.
