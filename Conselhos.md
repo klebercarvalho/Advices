@@ -39,3 +39,9 @@ O princial proposito é crescer e contribuir, você precisa descobrir com o que.
 * __Ser bom não é suficiente,__
 você precisa ser extraordinário e gerar transformação na vida das pessoas.
 
+* __Você não precisa ser clientes satisfeitos,__
+você precisa ter clientes encantados e impactados com o seu serviço.
+
+* __Sucesso deixa pista,__
+sucesso não acontece por acaso.
+
